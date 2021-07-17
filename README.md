@@ -1,2 +1,1 @@
-# doctissimo-spam-bot
-👍 Spam bot for doctissimo forum
+## https://github.com/ivekivek has refused to pay back $900
